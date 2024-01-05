@@ -5,5 +5,5 @@
 > * Red Skull
 > * Hela
 > * Ultrón
-> * Yo
+> * Humbert Dz
 > * esmeralda garces
