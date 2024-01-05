@@ -5,6 +5,5 @@
 > * Red Skull
 > * Hela
 > * Ultrón
-> * Humbert Dz
 > * Esmeralda Garces Rosas - Mr. Porky
 > * Humberto De La Cruz Domínguez - Mr. cerdito
